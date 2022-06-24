@@ -1,1 +1,0 @@
-# Examen-GitHub---Nchinech-Rachiid
